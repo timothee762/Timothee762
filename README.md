@@ -10,7 +10,7 @@ I'm a full-time sleeper and a part-time engineering student.
 ☘️ I like to watch movies, play games, and do film photography.
 
 🔗 You can reach me via [contact](#contact-)  
-💸 For support, buy me a [beer🍺](https://www.buymeacoffee.com/hercerthe).
+💸 For support, buy me a [beer🍺](https://www.buymeacoffee.com/hercerthe) or [paypal](https://www.paypal.com/paypalme/punpunpunpunpunpun) me here.
 
 
 ### Skill 💻
